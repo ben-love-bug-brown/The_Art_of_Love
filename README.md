@@ -3,7 +3,9 @@
 https://github.com/user-attachments/files/22961568/The.Art.of.Love.zip
 
 > *Rediscovering Biblical Wisdom for Love and Respect*
-Added a rough Chinese Translation
+
+> *Added a rough Chinese Translation*
+
 
 ## 📖 About This Book
 
